@@ -1,0 +1,3 @@
+# Praktikum-SCPK-SAW
+NAMA : IKHSAN SETIAWAN        .,
+NIM  : 123190111
